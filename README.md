@@ -29,3 +29,4 @@ Most of us are not aware, but Fabric Is An Allergen Too. So it is important that
 
 Her dress doesn’t have to be expensive, what’s important is it’s comfortable for your little princess to wear it. Style counts as a bonus for the dress, but if it will cost you more because of its style, might as well find some other options to change. 
 
+<a href="http://www.blogs-collection.com/" title="blog directory" target="_blank">Blogs Directory</a>
